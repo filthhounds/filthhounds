@@ -1,1 +1,1 @@
-![image](https://media.discordapp.net/attachments/1318254921056784396/1376248791472279713/IMG_8548.gif?ex=684e5851&is=684d06d1&hm=0bcd3a503cbcf7ac019a51d0892355bf80b2ab43563e7777373b1492fefe7bac&=)
+![image](https://tenor.com/qrRVP2lFNjh.gif)
