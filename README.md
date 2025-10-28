@@ -1,1 +1,1 @@
-![image](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3dW9nMjlyb21xNXhvOG9vMnlqNGc4a3l6ZndrNmo2NjJzZ3VmcmV1eCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/26DN0XyOwCVSQuboQ/giphy.gif)
+![image](https://media.discordapp.net/attachments/1394641376964116582/1432703666435133472/IMG_4234.gif?ex=690204c4&is=6900b344&hm=e03a165102de77f9074d5445190b19b7c13853f555fc42bcd9e096c487637bb3&=)
